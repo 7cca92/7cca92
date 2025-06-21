@@ -1,4 +1,4 @@
-third years
+lets all be third year in uniform and not tell Kasa!
 ![Screenshot 2025-03-08 112547](https://github.com/user-attachments/assets/9ace6236-a5b2-4b0e-b8de-711e606a2ab1)
 
 
